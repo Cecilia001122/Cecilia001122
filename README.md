@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I am Cecilia and currently a finalist in Oxford chemistry!
 
 <!--
 **Cecilia001122/Cecilia001122** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
